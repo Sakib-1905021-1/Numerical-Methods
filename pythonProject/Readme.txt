@@ -1,0 +1,1 @@
+Let's change the world and make it suitable for people of all classes.
